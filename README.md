@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KrazyKleb999
-- 👀 I’m interested in Minecraft modding
-- 🌱 I’m currently learning How to make a mod
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning stuff
 - 📫 How to reach me Krazykleb999#7830 on discord
 
 <!---
